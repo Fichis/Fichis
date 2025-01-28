@@ -10,7 +10,7 @@
 
 ## What do I expect?
 > [!TIP]
-> I expect to enjoy making websites and live the life 😄
+> I expect to enjoy making websites and work on what I like 😄
 
 > [!TIP]
 > ~ *Live the life, here there is not a replay button* ~ 💠
