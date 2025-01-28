@@ -12,7 +12,7 @@
 > [!TIP]
 > I expect to enjoy making websites and work on what I like 😄
 
-> [!TIP]
+> [!IMPORTANT]
 > ~ *Live the life, here there is not a replay button* ~ 💠
 
 ### Find me:
