@@ -6,7 +6,9 @@
 > + I’m currently learning Web Aplications Development 💻
 > + Front-end lover :electron:
 > + Pronouns: He/him ♂️
-> + Fun fact: Google Images was literally created  after Jennifer Lopez wore that famous dress to the 2000 Grammys. ⚡
+> + Fun fact: Google Images was literally created
+
+after Jennifer Lopez wore that famous dress to the 2000 Grammys. ⚡
 
 ## What do I expect?
 > [!TIP]
