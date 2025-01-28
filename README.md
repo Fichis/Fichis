@@ -13,7 +13,7 @@
 > I expect to enjoy making websites and live the life 😄
 
 > [!TIP]
-> ~ __Live the life, here there is not a replay button__ ~ 💠
+> ~ *Live the life, here there is not a replay button* ~ 💠
 
 ### Find me:
 📫 [adolfoinsti@gmail.com (Gmail)](mailto:adolfoinsti@gmail.com)  
