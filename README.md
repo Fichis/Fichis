@@ -11,5 +11,6 @@
 > I expect becoming a font-end worker, as I enjoy making websites 😄
 
 ### Find me:
-📫 [adolfoinsti@gmail.com](mailto:adolfoinsti@gmail.com)  
-🕹️ [.livay (Discord)](https://discord.com/)
+📫 [adolfoinsti@gmail.com (Gmail)](mailto:adolfoinsti@gmail.com)  
+🕹️ [.livay (Discord)](https://discord.com/)  
+📸 [buba_dolfo (Instagram)](https://www.instagram.com/)
