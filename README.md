@@ -10,7 +10,9 @@
 
 ## What do I expect?
 > [!TIP]
-> I expect becoming a font-end worker, as I enjoy making websites 😄
+> I expect to enjoy making websites and live the life 😄
+> [!TIP Protip]
+> Live the life, here is not a replay button 💠
 
 ### Find me:
 📫 [adolfoinsti@gmail.com (Gmail)](mailto:adolfoinsti@gmail.com)  
