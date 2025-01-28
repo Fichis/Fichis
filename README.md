@@ -9,6 +9,7 @@
 > + Fun fact: Google Images se creó literalmente después de que Jennifer López llevara ese famoso vestido en los Grammy del año 2000. ⚡
 
 ## What do I expect?
+> [!TIP]
 > I expect becoming a font-end worker, as I enjoy making websites 😄
 
 ### Find me:
