@@ -18,5 +18,5 @@
 ### Find me:
 📫 [adolfoinsti@gmail.com (Gmail)](mailto:adolfoinsti@gmail.com)  
 🕹️ [.livay (Discord)](https://discord.com/)  
-📸 [@buba_dolfo (Instagram)](https://www.instagram.com/)
+📸 [@buba_dolfo (Instagram)](https://www.instagram.com/)  
 💼 [bubas.me](https://bubas.me)
