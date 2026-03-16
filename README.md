@@ -2,7 +2,7 @@
 
 ## About me
 > [!NOTE]
-> + I'm 23 years old :bowtie:
+> + I'm 24 years old :bowtie:
 > + I’m currently learning Web Aplications Development 💻
 > + Front-end lover :electron:
 > + Pronouns: He/him ♂️
